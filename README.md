@@ -24,4 +24,4 @@
 我们非常重视用户隐私，平台使用加密技术保障你的个人信息安全。所有的影片均来自合法授权渠道，确保你在享受观看乐趣的同时也能放心无忧。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/yan7852/57899 ）</span>
